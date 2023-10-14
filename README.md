@@ -1,6 +1,6 @@
 ## 컨디션 스펙트럼 기록
 
-<img src="https://github.com/BanBanMapMaker/BanBanMapMaker/assets/101504006/15a9dba7-6a16-4ff5-a570-4098bcfd921d">
+<img src="https://github.com/BanBanMapMaker/BanBanMapMaker/assets/101504006/d62276cf-5261-4bd9-b1c6-3a1106d01323">
 
 나는 항상 관찰자였다 나의 존재성은 뒤로한 채 그저 사람들이 살아가는 모습만 지켜보는. 사람들 사이에서 나의 존재는 없었다. 라고 스스로 그렇게 규정해 왔는지도 모른다. 그렇기에 불안정했다. 그렇기에 사람들 속에서 비춰지는 내가 두려웠다. 관찰자였지만 나는 나를 관찰해오지 않았기에 역설적이게도, 가장 오래 곁에 있었지만 가장 알 수 없는 미지의 존재는 나였던 것이었다. 마치 사람의 눈이 타인만 볼 수 있게 설계된 것 처럼.
 
